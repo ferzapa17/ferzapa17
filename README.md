@@ -2,6 +2,6 @@
 
 SOBRE MIM!!
 
-Sou a aluna Fernanda , bem vindo ao meu perfil do github!!
+Sou a aluna rebeca , bem vindo ao meu perfil do github!!
 
 
