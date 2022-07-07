@@ -1,7 +1,7 @@
-### Hi 👋
+# SOBRE MIM!!
+Olá 👋
 
-SOBRE MIM!!
+Sou a aluna rebeca , bem-vindo ao meu perfil do github!!
 
-Sou a aluna rebeca , bem vindo ao meu perfil do github!!
-
+# Estou aprendendo:
 
